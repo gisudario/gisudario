@@ -1,6 +1,6 @@
 ### Oiee!👋 Eu sou a Giovanna Sudario 😊
 
-• 💻Atualmente estou cursando Sistemas de informação
+• 💻Cursando Sistemas de informação
 
 ## Ferramentas e Tecnologias
 
